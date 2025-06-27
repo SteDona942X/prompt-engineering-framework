@@ -768,6 +768,6 @@ Professional services for large-scale team collaboration deployment.
 
 🎯 **Ready to transform your team's prompt engineering collaboration?**
 
-Start with our team assessment framework, or [**contact us**](mailto:your-email@domain.com) for comprehensive team collaboration implementation.
+Start with our team assessment framework, or [**contact us**](mailto:matteoblu1@gmail.com) for comprehensive team collaboration implementation.
 
 **Excellence through systematic collaboration.** 🤝
